@@ -1,4 +1,4 @@
-I amd Muhammad Sulleman
+I am Muhammad Sulleman
 
 <!---
 MuhammadSulleman12911/MuhammadSulleman12911 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
